@@ -1,4 +1,4 @@
-### Hi my name is Nelly!
+### Hi my name is Nelly!an aspiring IT professional.
 
 <h2>👨‍💻 Information Technology Projects:</h2>
 
